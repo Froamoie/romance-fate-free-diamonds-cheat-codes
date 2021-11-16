@@ -1,2 +1,5 @@
-# romance-fate-free-diamonds-cheat-codes
-Romance Fate free diamonds cheat codes 2022 that work for iOS android
+# Romance Fate free diamonds cheat codes 2022 that work for iOS android
+
+Romance Fate free diamonds cheat codes 2022 that work for iOS android - how to get unlimited diamonds in romance fate? If you score 300 points in this game, you will win the bronze medal. If you get 500 points, you will get a silver medal, 800 points will get a gold medal and 1000 points will get a platinum. Generally speaking, it takes a lot of practice to achieve anything other than a bronze medal, but stick to it and make sure you have a lot of rest and relaxation. There are a lot of things to do in this game, but most importantly, there is still a lot to wait, especially when you go further into the game. Different tasks can take hours to complete, especially when they involve cleaning up space for a new area. However, you can cancel the waiting time immediately by setting the waiting time on your phone or tablet. You can do as many times as you want, or you can do whatever you want - it can be used to accelerate exploration or expansion, or to earn you food, wood, stone, or wish scrolls, or to use many other resources that appear behind the game. how to get free tickets in romance fate
+
+https://twitter.com/romancemod
